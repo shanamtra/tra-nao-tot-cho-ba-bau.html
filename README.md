@@ -1,3 +1,5 @@
+<h1>Bà bầu có nên tốt cho bà bầu không? Nên uống trà nào ?</h1>
+
 <p>Trong thời gian mang thai, do mẹ bầu không được dùng các loại mĩ phẩm và một số thay đổi về mặt sinh lý nên da dẻ thường không đẹp, xuất hiện nám, tàn nhang, mụn nhọt&hellip; Hàm lượng vitamin C cao trong trà thúc đẩy quá trình sản sinh trong cơ thể, tăng cường khả năng tái tạo tế bào da và mạch máu, mang đến một làn da mịn màng, tươi trẻ hơn. Với những lợi ích kể trên thì các mẹ đã trả lời được câu hỏi <a href="https://github.com/shanamtra/tra-nao-tot-cho-ba-bau.html/"><strong>trà có tốt cho bà bầu không</strong></a> rồi nhé.</p>
 
 <h2><span style="color:#0000ff"><strong>Một số lưu ý khi uống trà đối với người mang thai</strong></span></h2>
